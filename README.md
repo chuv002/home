@@ -1,1 +1,1 @@
-# home
+See wiki for shareable tips.
